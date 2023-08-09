@@ -1,0 +1,16 @@
+- `блять` - same as "shit".
+- `сука` - an asshole person.  
+- `пидор` - also an asshole person.  
+- `долбаеб` - yet another asshole person.  
+- `ебать` - like fuck, which means having sex.  
+- `хуй` - male genetalia.  
+- `пизда` - female genetalia.  
+- `тупой` - stupid.  
+- `пизда` - your mom's genetalia.  
+- `обезьяна` - Some species of primate. 
+- `аутизм` - Actually a disease.  
+- `батя твой` - Literally means your dad.  
+- `сучёнок` - An angry expression like `bastard`.  
+- `шлюха` - A prostitute.  
+- `говно` - Poop/shit.  
+- `хуй` - Dick.  
